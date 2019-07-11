@@ -1,2 +1,3 @@
 day 01
-Ğ¡ÎÚ¹ê
+Ğ¡ÎÚ¹êsdfsdfdsdssfd
+dgfs
